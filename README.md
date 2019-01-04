@@ -12,7 +12,7 @@ You're kind and sweet.
 
 You're a light, radiating through this world of superficials.
 
-
+---
 I've been looking for someone, for the longest time.
 
 A person which whom I can be myself with.
@@ -29,7 +29,7 @@ I'm just trying to get by in this world, doing times.
 
 Without meaning, purposes, I live my life in waiting.
 
-
+---
 In your eyes, I see the woman I want to spend the rest of my life with.
 
 I was losing hope, thinking Love is lost, and I will never find it.
